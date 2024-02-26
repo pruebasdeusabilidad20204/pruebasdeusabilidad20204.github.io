@@ -1,1 +1,1 @@
-https://pruebasdeusabilidad2024.github.io/
+https://pruebasdeusabilidad20224.github.io/
